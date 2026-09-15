@@ -1,0 +1,1 @@
+<meta name="description" content="Ahmed — Photographer & Video Editor, Reels Creator & Content Writer. 3+ years of experience in photography, and over a year in video shooting and editing. Freelancer delivering complete work from concept to final product.">
